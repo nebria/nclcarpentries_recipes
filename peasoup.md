@@ -1,7 +1,8 @@
 # Ingredience
 - pease
-- onionns
+- throwing onionns
 - potato (p d't)
+- animals
 
 # Instructions
 
